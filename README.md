@@ -1,0 +1,2 @@
+# kanj-1974
+Ineed to be results support from my majority group from the ex leather Mr Christopher in to stop ognore me like sam every time I trying to be fixed my problem ecoh with Mr Christopher he reject me in all this time  iam trying whole time to collect sam money to be able to sovave my self in ibeen compliance about all this money moreover$ 992 billion dollars tell this time idont collecte not one dollar plz ineed support in hope plz
